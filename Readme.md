@@ -10,8 +10,8 @@
 	- 60 см или 72 см (зависит от наличия)
 		- Оба встраиваются в шкаф на 60
 		- 60x51,5x26 cm или 72x51,5x26 cm
-		- https://market.yandex.ru/product--varochnaia-poverkhnost-s-vytiazhkoi-elica-nikolatesla-fit-bl-a-72/1756014657?sku=101769418022&cpa=1
-		- https://www.elica.com/RU-ru/nikolatesla-fit
+		- [ссылка](https://market.yandex.ru/product--varochnaia-poverkhnost-s-vytiazhkoi-elica-nikolatesla-fit-bl-a-72/1756014657?sku=101769418022&cpa=1)
+		- [ссылка](https://www.elica.com/RU-ru/nikolatesla-fit)
 - Посудомойка на 60 см
 - Холодильник 
 	- встраиваемый
@@ -26,7 +26,7 @@
 - Микроволновка
 	- Пользуемся каждый день (чаще чем духовкой)
 	- Хотели встроенную, теперь рассматриваем тоже вариант поставить красивую на столешницу
-		- https://www.dns-shop.ru/product/92c84fae9be73332/mikrovolnovaa-pec-samsung-mg23t5018anbw-goluboj/
+		- [ссылка](https://www.dns-shop.ru/product/92c84fae9be73332/mikrovolnovaa-pec-samsung-mg23t5018anbw-goluboj/)
 		- Ширина: 48.9 см - Высота: 27.5 см - Глубина: 38.1 см
 - Измельчитель
 
@@ -35,19 +35,19 @@
 	- Будем пользоваться часто 2-3 раза в неделю
 	- Высота: 17.5 см - Ширина: 36.5 см - Глубина: 34 см
 	- Хочется ставить его на плиту и включать вытяжку от плиты
-	- https://www.mvideo.ru/products/elektrogril-tefal-gc705d16-400094227
+	- [ссылка](https://www.mvideo.ru/products/elektrogril-tefal-gc705d16-400094227)
 - Кухонная машина
 	- Будем пользоваться раз в неделю
 	- 48 см x 37 см x 52 cм
 		- + Насадки (сложно оценить)
-	- https://www.mvideo.ru/products/kuhonnaya-mashina-kenwood-kvl8300s-20036672?utm_source=yandexmarket&utm_medium=cpc&utm_campaign=ipr_pp_market_spb&utm_content=1167&utm_term=20036672&frommarket=https://market.yandex.ru/product--kombain-kenwood-kvl8300s/1711098821
+	- [ссылка](https://www.mvideo.ru/products/kuhonnaya-mashina-kenwood-kvl8300s-20036672?utm_source=yandexmarket&utm_medium=cpc&utm_campaign=ipr_pp_market_spb&utm_content=1167&utm_term=20036672&frommarket=https://market.yandex.ru/product--kombain-kenwood-kvl8300s/1711098821)
 - Ледогенератор
 	- Пока под вопросом
 		- Может встроенный в холодильник?
 - Вакууматор
 	- Несколько раз в месяц
 	- 366 х 154 x 77 мм
-	- https://kitfort.ru/catalog/vakuumatory/vakuumator-kitfort-kt-1502-1-belyy/
+	- [ссылка](https://kitfort.ru/catalog/vakuumatory/vakuumator-kitfort-kt-1502-1-belyy/)
 - Тостер
 	- Пользуемся редко 1-2 раза в месяц
 
@@ -55,21 +55,21 @@
 - Кофемашина
 	- Пользуемся каждый день
 	-  15 см х 26 см х 35 см
-	- https://www.sima-land.ru/1485069/kofemashina-delonghi-nespresso-inissia-en-80-o-kapsulnaya-1260-vt-0-7-l-oranzhevaya-2/
+	- [ссылка](https://www.sima-land.ru/1485069/kofemashina-delonghi-nespresso-inissia-en-80-o-kapsulnaya-1260-vt-0-7-l-oranzhevaya-2/)
 		- Такая машинка у нас сейчас
-	- https://www.ozon.ru/product/avtomaticheskaya-kofemashina-xiaomi-mijia-824885124/?asb=6XTm20%252BHARK7%252FDC8QaS%252BjwcZpwVthnQitSfCoPr4j7k%253D&asb2=9yxeHWP3vbOA7OIOMxNO4Y6c9uYHeDYES_YuHjdUTSUCYoDYVi673QdQhL8kA-BB&avtc=1&avte=4&avts=1686472252&sh=NJXUDg-w1w
+	- [ссылка](https://www.ozon.ru/product/avtomaticheskaya-kofemashina-xiaomi-mijia-824885124/?asb=6XTm20%252BHARK7%252FDC8QaS%252BjwcZpwVthnQitSfCoPr4j7k%253D&asb2=9yxeHWP3vbOA7OIOMxNO4Y6c9uYHeDYES_YuHjdUTSUCYoDYVi673QdQhL8kA-BB&avtc=1&avte=4&avts=1686472252&sh=NJXUDg-w1w)
 		- Такую машинку скорее всего приобретем
 - Капучинатор
 	- Пользуемся каждый день
 	- 17.5 x 9.6 x 9.6 см
-	- https://www.mvideo.ru/products/kapuchinator-xiaomi-scishare-wishing-milk-s3101-4131856/specification
+	- [ссылка](https://www.mvideo.ru/products/kapuchinator-xiaomi-scishare-wishing-milk-s3101-4131856/specification)
 - Термопот
 	- 27.8 х 27.8 х 10.5 мм
-	- https://www.mijia-shop.ru/product/xiaomi-mijia-instant-hot-water-dispenser/
+	- [ссылка](https://www.mijia-shop.ru/product/xiaomi-mijia-instant-hot-water-dispenser/)
 - Сатуратор
 	- Думаю будем пользоваться часто 3-4 раза в неделю
 	- 220 х 120 х 439 мм
-	- https://kitfort.ru/catalog/sifony/sifon-kitfort-kt-4097-1-belyy/
+	- [ссылка](https://kitfort.ru/catalog/sifony/sifon-kitfort-kt-4097-1-belyy/)
 
 # Посуда
 
@@ -86,15 +86,15 @@
 	- 15 см
 - Комплект мисок
 	- 12 см диаметр, 6 см высота
-	- https://www.wildberries.ru/catalog/112387901/detail.aspx (похожая но другого размера)
+	- [похожая но другого размера](https://www.wildberries.ru/catalog/112387901/detail.aspx)
 
 ## Посуда для готовки
 - Самая большая миска
 	- 28 см диаметр, 13 см высота
-	- https://www.wildberries.ru/catalog/112387901/detail.aspx
+	- [ссылка](https://www.wildberries.ru/catalog/112387901/detail.aspx)
 - Несколько мисок поменьше
 	- 20 см диаметр, 9 см высота
-	-  https://www.wildberries.ru/catalog/112387901/detail.aspx (похожая но другого размера)
+	- [похожая но другого размера](https://www.wildberries.ru/catalog/112387901/detail.aspx)
 - Кастрюли
 	- 3-4 кастрюли разных размеров
 		- Кастрюли с плоскими крышками
